@@ -1,2 +1,2 @@
 # Domain for Sale
-Contact sale@ mitpachot.com
+Contact sale@mitpachot.com
