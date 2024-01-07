@@ -1,2 +1,2 @@
-# mitpachot
-mitpachot.com
+# Domain for Sale
+Contact sale@ mitpachot.com
